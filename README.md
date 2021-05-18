@@ -1,0 +1,1 @@
+# 2021-prg-static-member-miomayska18
